@@ -1,16 +1,19 @@
-### Hi there 👋
+## Autumn 2023
+- Prepare for the opening of school
+- Find a home
+- Prepare my social media
+- Personal fitness goals
 
-<!--
-**sagecjmurphy/sagecjmurphy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Currently Playing
+- [Pathfinder 2e](https://paizo.com/)
+- [Hogwarts Legacy](https://www.hogwartslegacy.com/)
+- [Elder Scrolls Online](https://www.elderscrollsonline.com/en-us/home)
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## My Identity
+- Eagle Scout
+- cis-male
+- MBTI: [ENFJ-A](https://www.16personalities.com/enfj-personality) \(Protagonist\)
+- American, Canadian, Irish
+- [Hufflepuff](https://www.wizardingworld.com/collections/hufflepuff)
+- Pronouns: he, him
+  \([Why this matters](https://www.mypronouns.org/what-and-why)\)
